@@ -111,4 +111,4 @@ With a clear view into Finance, Sales, Marketing, Supply Chain, and Executive KP
 
 ### Connect with Me
 
-If you have feedback or would like to connect, visit my [LinkedIn Profile]((https://www.linkedin.com/in/priya-jangid2018/)).
+If you have feedback or would like to connect, visit my [LinkedIn Profile](https://www.linkedin.com/in/priya-jangid2018/).
